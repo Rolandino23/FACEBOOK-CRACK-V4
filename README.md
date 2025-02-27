@@ -1,4 +1,4 @@
----------(𝗜𝗡𝗦𝗧𝗔𝗟𝗟)----------
+𝗜𝗡𝗦𝗧𝗔𝗟𝗟
 
 • git clone https://github.com/Rolandino23/FACEBOOK-CRACK-V4.git 
 
